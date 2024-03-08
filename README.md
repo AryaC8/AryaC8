@@ -1,6 +1,6 @@
 # 🎉 Bienvenida/o #
 
- ### 👋🏻 ¡Hola! Soy Olga. (Arya8🐕)   
+ ### 👋🏻 ¡Hola! Soy Olga. (AryaC8🐕)   
  🏫 Más de 16 años de experiencia en el sector educativo musical.   
  🆕 Me encanta descubrir cosas nuevas y ampliar mis conocimientos.  
  💻 Hace no mucho que estoy en el mundo de la programación pero ¡***me encanta***!.    
